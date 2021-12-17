@@ -1,1 +1,0 @@
-# jwytapp-privacy
